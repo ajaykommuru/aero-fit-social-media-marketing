@@ -1,4 +1,4 @@
-# Aero Fit Social Media Marketing Strategy
+# Aero Fit Social Media Marketing Strategy 📄 **[Click Here to View Full Project PDF](https://github.com/ajaykommuru/aero-fit-social-media-marketing/blob/main/Kommuru_Venkata_Ajay_SMM_Project.pdf)**
 
 ## Project Overview
 
